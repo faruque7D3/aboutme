@@ -32,9 +32,9 @@ I’m passionate about **business, technology, and innovation**. My ultimate goa
 ---
 
 ## 📫 Connect with Me
-- 📧 Email: [your-email@example.com]  
-- 💼 LinkedIn: [your-linkedin-profile]  
-- 🌐 Portfolio/Blog: [your-website-or-blog]  
+- 📧 Email: [faruque7d3@gmail.com]  
+- 💼 LinkedIn: [omar-faruque-7d3]
+- - 🌐 Facebook: [omar faruque chaudhury refan]  
 
 ---
 
